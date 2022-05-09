@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @muramurak
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning how to juggle deez nuts
+- 🌱 I’m currently learning how to live
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me (discord) rrazzorr#0002 
 
